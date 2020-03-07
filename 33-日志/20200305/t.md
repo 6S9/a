@@ -12,14 +12,14 @@ Wilhelm Ma - 1 man, 2 heads
 EST6k2IVAAAjQ1N (1068×1641)
 ![](https://pbs.twimg.com/media/EST6k2IVAAAjQ1N?format=jpg&name=orig)
 
-献忠
+### 献忠
 @435Hz：以上所指是有明确的信息制造者，或者通过手段可以反向追踪信息制造者。然而大量日常mz的行为决策，很可能还来自于不明信息源的口耳相传。
 ERXmrmBXsAAytYF (561×1024)
 ![](https://pbs.twimg.com/media/ERXmrmBXsAAytYF?format=jpg&name=orig)
 
 冰雪菱蓉²º²º
 @Xandra1117
-：得到官方确切通知。有人求神拜佛释放陈秋实，不如求求徐晓东吧！
+：得到官方确切通知。有人求神拜佛释放陈秋s，不如求求徐晓d吧！
 
 ### 阿米娜・阔伊姆@頑張らない？
 @jamella_hoshino

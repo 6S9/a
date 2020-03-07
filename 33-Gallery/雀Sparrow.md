@@ -1,3 +1,79 @@
+### 中野さとる
+@aerial2009
+1582036682 (1500×499)
+![](https://pbs.twimg.com/profile_banners/100244329/1582036682)
+EPNn5h-UYAEioaj (1920×1098)
+![](https://pbs.twimg.com/media/EPNn5h-UYAEioaj?format=jpg&name=orig)
+o1024068014723202231.jpg (1024×680)
+![](https://stat.ameba.jp/user_images/20200305/06/onakans/f1/0a/j/o1024068014723202231.jpg)
+ESSCX0lUcAEP8ef (2048×1361)
+![](https://pbs.twimg.com/media/ESSCX0lUcAEP8ef?format=jpg&name=orig)
+ESQ5CGtU8AEkQii (2048×1361)
+![](https://pbs.twimg.com/media/ESQ5CGtU8AEkQii?format=jpg&name=orig)
+Da1UP8UVAAE41ZA (1024×678)
+![](https://pbs.twimg.com/media/Da1UP8UVAAE41ZA?format=jpg&name=orig)
+Da1UP8OU0AAc7Kx (1024×678)
+![](https://pbs.twimg.com/media/Da1UP8OU0AAc7Kx?format=jpg&name=orig)
+Da1UP8iUwAUdXhd (1024×678)
+![](https://pbs.twimg.com/media/Da1UP8iUwAUdXhd?format=jpg&name=orig)
+Da1UP8aU8AAy5DT (1024×678)
+![](https://pbs.twimg.com/media/Da1UP8aU8AAy5DT?format=jpg&name=orig)
+ER8wZ_3U0AAp38W (2048×1361)
+![](https://pbs.twimg.com/media/ER8wZ_3U0AAp38W?format=jpg&name=orig)
+ER8waHXU8AEBdNz (2048×1361)
+![](https://pbs.twimg.com/media/ER8waHXU8AEBdNz?format=jpg&name=orig)
+ER8wadKU8AEpr3p (2048×1361)
+![](https://pbs.twimg.com/media/ER8wadKU8AEpr3p?format=jpg&name=orig)
+ER8wagcUwAE97Uc (2048×1361)
+![](https://pbs.twimg.com/media/ER8wagcUwAE97Uc?format=jpg&name=orig)
+`什么情况？`EPH7YjcUEAAWby6 (2048×1361)
+![](https://pbs.twimg.com/media/EPH7YjcUEAAWby6?format=jpg&name=orig)
+
+### ：いつものパターン
+ちょっかい出して
+怒られる`常规模式，有点生气`
+D18gyfhU4AADMhk (2048×1362)
+![](https://pbs.twimg.com/media/D18gyfhU4AADMhk?format=jpg&name=orig)
+D18gygIUcAIVLEY (2048×1362)
+![](https://pbs.twimg.com/media/D18gygIUcAIVLEY?format=jpg&name=orig)
+D2WW2iqU8AAX1_O (2048×1362)
+![](https://pbs.twimg.com/media/D2WW2iqU8AAX1_O?format=jpg&name=orig)
+D2WW2iqVAAUTT5b (2048×1361)
+![](https://pbs.twimg.com/media/D2WW2iqVAAUTT5b?format=jpg&name=orig)
+D2WW2ipVAAYkYb4 (2048×1362)
+![](https://pbs.twimg.com/media/D2WW2ipVAAYkYb4?format=jpg&name=orig)
+D2WW2ipU8AY9jED (2048×1362)
+![](https://pbs.twimg.com/media/D2WW2ipU8AY9jED?format=jpg&name=orig)
+D2WjdZjUcAAqoX8 (2048×1362)
+![](https://pbs.twimg.com/media/D2WjdZjUcAAqoX8?format=jpg&name=orig)
+D2WjdZkVAAAwJdF (2047×1362)
+![](https://pbs.twimg.com/media/D2WjdZkVAAAwJdF?format=jpg&name=orig)
+D2WjdZfUkAI9OU5 (2048×1362)
+![](https://pbs.twimg.com/media/D2WjdZfUkAI9OU5?format=jpg&name=orig)
+D2WjdZhU8AEJF7x (2048×1362)
+![](https://pbs.twimg.com/media/D2WjdZhU8AEJF7x?format=jpg&name=orig)
+D2TvjLDVYAUvAsV (2048×1362)
+![](https://pbs.twimg.com/media/D2TvjLDVYAUvAsV?format=jpg&name=orig)
+D2CFFgJUwAApj49 (1920×1280)
+![](https://pbs.twimg.com/media/D2CFFgJUwAApj49?format=jpg&name=orig)
+
+### ナオミ
+@koryunao1
+文鳥さん  ぶんちょうさん ( ⁰⊖⁰)
+EGoddvCUEAEcM15 (749×728)
+![](https://pbs.twimg.com/media/EGoddvCUEAEcM15?format=jpg&name=orig)
+
+### ちゅん太
+D5MfvW1U0AASB5O (834×840)
+![](https://pbs.twimg.com/media/D5MfvW1U0AASB5O?format=jpg&name=orig)
+
+### 東京すずめ【公式】あした、どこかで。
+EQ2zeKIUUAA-nI5 (2048×2048)
+![](https://pbs.twimg.com/media/EQ2zeKIUUAA-nI5?format=jpg&name=orig)
+
+### ？
+![](https://camo.githubusercontent.com/db9d068026ad424bd4d380782acf7a9b9f2ea47c/68747470733a2f2f7062732e7477696d672e636f6d2f6d656469612f4552765332773255304141345142333f666f726d61743d6a7067266e616d653d6f726967)
+
 ### 日爆紅「厭世麻雀」戳中萬人心聲！「眼神渙散、呆張嘴」超寫實
 https://www.teepr.com/1236357/crystalchang/厭世麻雀/
 厭世麻雀2.jpg (1098×695)
@@ -18,7 +94,7 @@ Q0Zja3ZzRUVUVXgyM1ROVTdCclFEakk4N0xqRVFkdzExenB5UHNmVWVsZEl2ck0zNFdPd0dnPT0.jpg 
 
 ### 意外的有點腹黑？ 日本攝影師捕捉下麻雀不為人知的一面
 https://news.ltn.com.tw/news/life/breakingnews/2746933
-phpeB5PBC.jpg (800×570)
+`我cou死你`phpeB5PBC.jpg (800×570)
 ![](https://img.ltn.com.tw/Upload/news/600/2019/04/02/phpeB5PBC.jpg)
 
 ### 鳥界瑪麗蓮夢露！　攝影師拍下麻雀「掀裙擺跳舞」　3隻一起尬成罕見萌照
@@ -217,8 +293,6 @@ https://m.overseas.weibo.com/user/hereinuk/4448302654842934
 https://ourpetpet.bastillepost.com/article/99149/
 `我去尼玛的（踢飞）`20190402_PET_麻雀.jpg (704×704)
 ![](https://media.bastillepost.com/wp-content/uploads/pet/2019/04/20190402_PET_%E9%BA%BB%E9%9B%80.jpg)
-`我cou死你`20190402_PET_麻雀2.jpg (704×502)
-![](https://media.bastillepost.com/wp-content/uploads/pet/2019/04/20190402_PET_%E9%BA%BB%E9%9B%802.jpg)
 
 ### 麻雀也會滿地打滾、使出無影腳？　日攝影師微笑發現「牠們根本是人類
 https://www.coco01.today/post/1106859

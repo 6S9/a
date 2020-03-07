@@ -11,10 +11,22 @@ https://zh.wikipedia.org/wiki/八卦
 6|☵|坎|水|陷|耳|肾|西|水
 7|☶|艮|山|止|手|胃|西北|土
 8|☷|坤|地|顺|腹|脾|北|土
-### 爻
+
+![](https://upload.wikimedia.org/wikipedia/commons/4/4d/Bagua-name-earlier.svg)
+先天)八卦/伏羲八卦(the Primordial , "Earlier Heaven" or "Fu Xi" bagua
+
+`Houtian_Bagua.JPG (220×218)`
+![](https://upload.wikimedia.org/wikipedia/commons/2/24/Houtian_Bagua.JPG)
+后天)八卦/文王八卦(the Manifested , "Later Heaven," or "King Wen" bagua
+
 ![](https://upload.wikimedia.org/wikipedia/commons/b/b7/Xiantianbagua.png)
-- 八卦符号通常与太极图搭配出现，代表中国传统信仰（儒，道）的终极真理：“道
-- 五行与后天八卦提出如下对应关系：震（雷）、巽（风）为木，离为火（日），坤（地）、艮（山）为土，兑（泽）、乾（天）为金，坎为水（月
+朱熹的伏羲八卦次序图（先天小横图
+
+八卦符号通常与太极图搭配出现，代表中国传统信仰（儒，道）的终极真理：“道
+
+五行与后天八卦提出如下对应关系：震（雷）、巽（风）为木，离为火（日），坤（地）、艮（山）为土，兑（泽）、乾（天）为金，坎为水（月
+
+周振甫在其著作《周易译注》中认为八卦和古希腊、古印度四种元素“地、水、火、风”的想法相类似。而先天八卦中对四组自然现象的阴阳关系描述为：天地定位，水火不相射，风雷相搏，山泽通气。
 
 ### 最全八卦万物类象查询表（收藏）
 http://www.yixiansheng.com/article/detail.html?aid=147

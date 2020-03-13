@@ -39,3 +39,12 @@ https://baijiahao.baidu.com/s?id=1660520260912836042
 http://blog.sina.com.cn/s/blog_a69406b40101g1mm.html
 
 老张生来秉性刚，为何奸贼聚一堂，怒气不息二堂上，管叫二贼一命亡！
+
+### mzd两次提出外蒙回归
+http://history.people.com.cn/GB/205870/13120797.html
+### 库页岛：一个令人魂牵梦绕的地方，曾是zg最大的岛屿
+https://www.sohu.com/a/228591411_100058701
+### ze石油“密约”的误读与信息公开
+http://wangsixiang.blogchina.com/2363785.html
+### ze密约》在签订时做出了哪些修改？
+https://tech.ifeng.com/c/7u02ROTj7a4

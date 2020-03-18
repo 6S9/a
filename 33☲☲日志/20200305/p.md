@@ -1,7 +1,3 @@
-### 陈qs
-52213459_303.jpg (700×394)
-![](https://www.dw.com/image/52213459_303.jpg)
-
 𝕳@JW BCN 25
 ESTE8JgWsAAZb0_ (1591×2500)
 ![](https://pbs.twimg.com/media/ESTE8JgWsAAZb0_?format=jpg&name=orig)

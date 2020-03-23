@@ -41,9 +41,6 @@ https://new.qq.com/omn/20191206/20191206A0S8ER00
 
 如果陶渊明这样的田园诗人住在这里，大概会写下我们熟悉的诗句：“孟夏草木长，绕屋树扶疏。众鸟欣有托，吾亦爱吾庐。
 
-### 李d梅：连接朝鲜战争和x冠状病毒的德里特里克堡
-http://www.cwzg.cn/theory/202003/55622.html
-
 ### 英国首相约翰逊应对疫情出奇招，目前全世界最大胆的招数
 https://www.youtube.com/watch?v=rBa_qGTaRsI
 

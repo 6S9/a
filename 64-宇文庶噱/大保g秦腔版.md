@@ -11,6 +11,7 @@ https://www.bilibili.com/video/BV1sJ411C7
 9. z时j管。
 10. 统筹调配。
 11. 强zz用。
+25. 凝聚人心，一致对外。
 12. 状况摸底。
 13. 行为掌握。
 14. r员筛查。
@@ -19,7 +20,7 @@ https://www.bilibili.com/video/BV1sJ411C7
 17. 婉转分流，奖励耕z。
 18. 冗y就业，扩充保j。
 19. 贸易x定，不可k力。
-20. 数据变化，合理解释。
+20. 数据波动，合理解释。
 21. 医药厂商，喘息回暖。
 22. 防护器材，热销创汇。
 23. 羁縻气志，消磨棱角。
@@ -30,6 +31,15 @@ https://www.bilibili.com/video/BV1sJ411C7
 
 千万人间事，从兹不复言。
 >https://baike.baidu.com/item/归田/23398835
+
+### 纽约派人到zg买呼吸机 两到三周将耗尽医疗设备
+https://finance.sina.com.cn/stock/usstock/c/2020-03-20/doc-iimxyqwa1858736.shtml
+### 调查:疫情让zgrm更感恩
+https://www.dw.com/zh/调查疫情让zgrm更感恩/a-52894330
+
+当被问及“是不是给人们太多的自由，他们就会滥用”，在2月5日之前接受调查的受访者中有48％强烈同意， 2月5日之后上升到59％。
+
+其中一些最大的变化与信任有关。调查显示，2月5日前后，人们对教育的信心从71％上升到82％、对公务员的信任度从42％上升到54％、对zg公司的信任度从55％上升到70％。
 
 ### 谁提出“我们都有两只手 不在城里吃闲饭”口号
 http://news.ifeng.com/history/zhiqing/xiaohua/detail_2012_08/10/16703668_0.shtml

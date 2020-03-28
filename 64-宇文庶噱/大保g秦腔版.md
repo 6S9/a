@@ -44,6 +44,10 @@ https://www.dw.com/zh/调查疫情让zgrm更感恩/a-52894330
 ### 新冠病y或将使zg取代美国霸权地位
 http://www.rfi.fr/cn/zg/20200326-新冠病y或将使zg取代美国霸权地位
 
+### 荷兰放行对zg光刻机出口？e媒建议用光刻机换口罩
+https://new.qq.com/omn/20200326/20200326A0SOUJ00.html
+
+---
 ### 谁提出“我们都有两只手 不在城里吃闲饭”口号
 http://news.ifeng.com/history/zhiqing/xiaohua/detail_2012_08/10/16703668_0.shtml
 

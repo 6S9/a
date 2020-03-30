@@ -47,6 +47,11 @@ http://www.rfi.fr/cn/zg/20200326-新冠病y或将使zg取代美国霸权地位
 ### 荷兰放行对zg光刻机出口？e媒建议用光刻机换口罩
 https://new.qq.com/omn/20200326/20200326A0SOUJ00.html
 
+### 万里尚为邻，相助无远近”第五批捐赠y朗防疫物资交接仪式在j举行
+https://baijiahao.baidu.com/s?id=1662098326745788035
+
+### 美打着援助疫情的幌子，偷偷为武装分子运物资，丑恶嘴脸惨遭揭露
+https://new.qq.com/omn/20200329/20200329A07WBM00.html
 ---
 ### 谁提出“我们都有两只手 不在城里吃闲饭”口号
 http://news.ifeng.com/history/zhiqing/xiaohua/detail_2012_08/10/16703668_0.shtml

@@ -1,13 +1,20 @@
 ### IP地址查询
 http://www.ip138.com/
-<details><summary>风险自理Use At Your Own Risk</summary>
 
 ### NihongoMaster Japanese Dictionary
 https://www.nihongomaster.com/dictionary
-nihongomasterlogo.png (286×90)
+`nihongomasterlogo.png (286×90)`<br>
 ![](https://www.nihongomaster.com/images/nihongomasterlogo.png)
-front_classroom.png (174×172)
+`front_classroom.png (174×172)`<br>
 ![](https://www.nihongomaster.com/images/front_classroom.png)
+
+### Stack Overflow
+https://stackoverflow.com/questions/46734820/hidden-markdown-text-on-github
+
+### 与熊论道
+http://hi.pcmoe.net/
+![](http://hi.pcmoe.net/img/info1.jpg)
+<details><summary>风险自理Use At Your Own Risk</summary>
 
 ### stonEj
 https://www.youtube.com/channel/UCghLs6s95LrBWOdlZUCH4qw

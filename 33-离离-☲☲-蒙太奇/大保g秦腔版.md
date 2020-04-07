@@ -50,6 +50,12 @@ https://www.dwnews.com/全球/60173746/新冠肺炎z美角力zg转守为攻的�
 ### 荷兰放行对zg光刻机出口？e媒建议用光刻机换口罩
 https://new.qq.com/omn/20200326/20200326A0SOUJ00.html
 
+### 欧洲再下一城！又一大国接纳h为5G，还送上10亿只口罩的大单
+https://baijiahao.baidu.com/s?id=1662508424250631272
+
+### 谣言不攻自破！又一大国认可h为5G，还从zg买了20亿个口罩
+https://baijiahao.baidu.com/s?id=1663215096340944208
+
 ### 万里尚为邻，相助无远近”第五批捐赠y朗防疫物资交接仪式在j举行
 https://baijiahao.baidu.com/s?id=1662098326745788035
 

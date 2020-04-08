@@ -51,6 +51,9 @@ https://www.sohu.com/a/384355455_656012
 
 ### 爱g≠仇恨日本
 https://www.bilibili.com/read/cv1551087/
+
+### 外j部领保中心：几个大使亲力亲为，张静j丈夫将乘包机回g
+https://www.guancha.cn/politics/2020_04_08_545918.shtml
 <details><summary>风险自理Use At Your Own Risk☣</summary>
 
 ### 献给ag”者的诗

@@ -32,6 +32,9 @@ https://www.bilibili.com/video/BV1sJ411C7
 千万人间事，从兹不复言。
 >https://baike.baidu.com/item/归田/23398835
 
+### 德语媒体：病毒助力zg崛起
+https://www.dw.com/zh/德语媒体病毒助力zg崛起/a-53080012
+
 ### 纽约派人到zg买呼吸机 两到三周将耗尽医疗设备
 https://finance.sina.com.cn/stock/usstock/c/2020-03-20/doc-iimxyqwa1858736.shtml
 ### 调查:疫情让zgrm更感恩

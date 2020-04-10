@@ -1,3 +1,7 @@
+### 让父母的世界与你同步
+![](http://pc1.gtimg.com/softmgr/myapp/assets/images/2018-01.jpg)
+![](http://pc1.gtimg.com/softmgr/myapp/assets/images/2018-02.jpg)
+
 #### `欧式厅堂，甄子丹`
 ![](https://pic3.zhimg.com/v2-807a2bf955648730ba7f8ef7e1886faa_r.jpg)
 

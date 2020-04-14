@@ -8,6 +8,9 @@ https://www.nihongomaster.com/dictionary
 `front_classroom.png (174×172)`<br>
 ![](https://www.nihongomaster.com/images/front_classroom.png)
 
+### Chrome 64bit Windows
+https://www.chromedownloads.net/chrome64win/
+
 ### Stack Overflow
 https://stackoverflow.com/questions/46734820/hidden-markdown-text-on-github
 

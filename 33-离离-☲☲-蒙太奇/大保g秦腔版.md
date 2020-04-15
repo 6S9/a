@@ -97,3 +97,16 @@ http://news.ifeng.com/history/zhiqing/xiaohua/detail_2012_08/10/16703668_0.shtml
 我们采访了第一个报名到农村去的职工家属王秀兰（王秀兰后因事迹突出，被选为省r大代表和全gr大代表，受到过mzdzx的亲切接见）。她当时50多岁，对家属下到农村劳动生产，减轻gj负担的做法十分支持。
 
 按当时的规定，集体创作的稿件不署名，只署了会宁县委报道组。受王秀兰说的“我们也有两只手，不在城里当死狗”一语的启发，我们把文章标题定为“我们也有两只手，不在城里吃闲饭”。
+<details><summary>慎入🔞NSFW</summary>
+
+Not Safe For Work
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Biohazard_Symbol_Specification.png/210px-Biohazard_Symbol_Specification.png)
+
+<details><summary><b>风险自理Use At Your Own Risk🈲</summary>
+
+### 一剑飘尘：武h病毒到底是不是xjp预谋的？
+https://2newcenturynet.blogspot.com/2020/04/blog-post_86.html
+
+昨天任zq朋友的信里谈及，武汉病毒很可能是xjp预谋的，目的是造成美g经济大萧条，让川普彻底失去连任希望。无论真假，目前的局势，是这样发展的。
+</details>
+</details>

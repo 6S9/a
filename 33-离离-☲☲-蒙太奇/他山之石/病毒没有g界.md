@@ -51,3 +51,15 @@ http://mp.163.com/v2/article/detail/DTC15VHI0522WBRI.html
 http://wangsixiang.blogchina.com/2363785.html
 ### ze密约》在签订时做出了哪些修改？
 https://tech.ifeng.com/c/7u02ROTj7a4
+
+### 中亚大国自称汉族后裔，曾受zg援助成功脱贫，如今渴望回归zg
+https://v.qq.com/x/page/m08804hhru1.html
+
+### 哈萨克斯坦”为何渴望回归zg？
+~~https://www.sohu.com/a/386815215_120469590~~
+
+### 哈萨克斯坦会晤中国大使，不满自媒体号称“哈国渴望回归
+https://baijiahao.baidu.com/s?id=1664005774471555483
+
+### 2020年哈萨克斯坦为回归同胞提供指定区域补助名额1300份`波拉特实力打脸`
+https://new.qq.com/omn/20200128/20200128A0EVVP00.html

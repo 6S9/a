@@ -1,3 +1,8 @@
+### OnLineOCR
+https://www.onlineocr.net
+### OcrSpace
+https://ocr.space
+
 ### IP地址查询
 http://www.ip138.com/
 

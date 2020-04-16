@@ -58,8 +58,28 @@ https://v.qq.com/x/page/m08804hhru1.html
 ### 哈萨克斯坦”为何渴望回归zg？
 ~~https://www.sohu.com/a/386815215_120469590~~
 
-### 哈萨克斯坦会晤中国大使，不满自媒体号称“哈国渴望回归
+### 哈萨克斯坦会晤zg大使，不满自媒体号称“哈国渴望回归
 https://baijiahao.baidu.com/s?id=1664005774471555483
 
 ### 2020年哈萨克斯坦为回归同胞提供指定区域补助名额1300份`波拉特实力打脸`
 https://new.qq.com/omn/20200128/20200128A0EVVP00.html
+
+<details><summary>慎入🔞NSFW</summary>
+
+Not Safe For Work
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Biohazard_Symbol_Specification.png/210px-Biohazard_Symbol_Specification.png)
+
+<details><summary><b>风险自理Use At Your Own Risk🈲</summary>
+
+### zg网文激怒哈萨克斯坦 哈国急召zg大使提抗议
+https://www.rfa.org/mandarin/yataibaodao/huanjing/ql1-04152020060132.html
+
+zgzf和部分网m战狼式的外交思维，均触怒了不少原本跟zg友好的gj。zg网站近期出现一篇文章，声称“在历史上，哈萨克斯坦属于zg疆域的一部分”，还称“哈萨克斯坦渴望成为zg一部分。
+
+哈萨克网m骗撒旦的乃蛮”对本台说，如果按照zg的说法，蒙古国也可以说zg曾经是蒙古国的。在全世界你找不到第二个gj会这么无赖。
+
+哈萨克文史学者热依斯汗对本台说，欺瞒造假各国都有，不要愚蠢的发动五毛愤青们通过各类媒体发布不符合真实历史的文章来意淫地球都是zg的。
+
+zg媒体还经常就这类话题在主流媒体发布同类文章，灌输俄罗斯、吉尔吉斯斯坦，蒙古等gj都是属于zg领土的观念，
+</details>
+</details>

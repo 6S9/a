@@ -17,6 +17,14 @@ zg驻法国大使馆官网发布文章，指出“自知者不怨人，知命者
 ### 科学研究表明：新冠病毒是自然产物 武h并非源头
 https://baijiahao.baidu.com/s?id=1662499844701177838
 
+天何言哉？
+![](https://wx3.sinaimg.cn/large/d8b41602ly1gduteulrhmj20831bpta8.jpg)
+
+### 甩手大自然！美科学家：新冠病毒“较弱版本”已在人群传播数十年
+https://www.sohu.com/a/384133379_762919
+
+突然良心发现，开始甩锅大自然了。
+
 ### 人与自然的和谐共处，全靠病毒
 https://baijiahao.baidu.com/s?id=1660333166430813642
 #### 猩球崛起

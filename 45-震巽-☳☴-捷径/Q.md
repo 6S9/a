@@ -3,6 +3,10 @@ https://www.onlineocr.net
 ### OcrSpace
 https://ocr.space
 
+### 在线网址链接批量生成器
+http://tools.jb51.net/aideddesign/ljscq
+![](http://tools.jb51.net/images/ljscq.png)
+
 ### IP地址查询
 http://www.ip138.com/
 

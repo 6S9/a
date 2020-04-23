@@ -40,12 +40,36 @@ http://blog.sina.com.cn/s/blog_a69406b40101g1mm.html
 
 老张生来秉性刚，为何奸贼聚一堂，怒气不息二堂上，管叫二贼一命亡！
 
+### 此人是曾国藩之子，因为他，zg从e国手中收回属于zg的领土
+https://baijiahao.baidu.com/s?id=1569451966124458
+
+### 唯一能让e罗斯归还土地的gj，如今已成世界强g，备受世界尊敬
+https://baijiahao.baidu.com/s?id=1664144949823922194
+
+### 400年来，唯一让e罗斯主动归还领土的gj，还先后还了4次！
+https://new.qq.com/omn/20191207/20191207A0DB4B00.html
+![](https://inews.gtimg.com/newsapp_bt/0/10925196732/1000)
+
 ### mzd两次提出外蒙回归
 http://history.people.com.cn/GB/205870/13120797.html
+
 ### 库页岛：一个令人魂牵梦绕的地方，曾是zg最大的岛屿
 https://www.sohu.com/a/228591411_100058701
+
 ### 日本：请把北方四岛归还给我们，叶利钦：我不介意日本从地球消失
 http://mp.163.com/v2/article/detail/DTC15VHI0522WBRI.html
+
+### 鲜为人知：清朝灭亡前，曾从列强手中收回了自己的领土
+http://mini.eastday.com/a/180328180145894.html
+
+清朝在灭亡前也“硬气”了一把，成功从列强手中收回国土。
+
+### 清朝最硬气的一回，也是最后一次硬气！军舰开到他国门口
+https://www.sohu.com/a/387627270_120388737
+
+墨西哥的g命d人为了把事情闹大，直接大肆抢劫h人的店铺，甚至t杀，非常恶劣。
+
+墨西哥g命d人只是想拿zg人做替罪羊，稳定g内的局势。他们不能杀自己人，又不敢杀美国人跟英国人，他们只能对zg人动手。
 
 ### ze石油“密约”的误读与信息公开
 http://wangsixiang.blogchina.com/2363785.html

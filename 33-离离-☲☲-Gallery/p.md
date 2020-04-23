@@ -1,3 +1,8 @@
+##### 新冠肺炎・最新疫情】全球确诊病例超262万 意大利死亡逾2.5万
+`329757673853685760.jpeg (1920×1280)`<br>
+![](https://media.dwnews.net/hk01/4yJ8UrjLZLg83BGU6y5IOSB2Q4w=/320*0/media/images/dw/20200422/329757673853685760.jpeg)
+
+
 ### 让父母的世界与你同步
 ![](http://pc1.gtimg.com/softmgr/myapp/assets/images/2018-01.jpg)
 ![](http://pc1.gtimg.com/softmgr/myapp/assets/images/2018-02.jpg)

@@ -32,6 +32,20 @@ https://www.bilibili.com/video/BV1sJ411C7
 千万人间事，从兹不复言。
 >https://baike.baidu.com/item/归田/23398835
 
+### 巴西总统无视疫情反禁足，希望j队镇yzf异议者
+https://baijiahao.baidu.com/s?id=1664646287427227771
+
+### 外媒：巴西极右m粹总统s动追随者破掉新冠疫情封城令 喊j队支持他们
+https://baijiahao.baidu.com/s?id=1664565576390399007
+
+示威者挥舞着巴西国旗并高喊：“关闭g会”，“关闭最高f院”。横幅上写着：“在博尔索纳l执z期间的j事干预”。此外，参加集会者还要求重新启动“ AI-5”法规。在1964-1985年的巴西j事d裁时期，该法规曾被用来镇yzf异议人士和反对派议员。
+
+### 埃尔多a：疫情给了土耳q参与全球秩序重构的良机
+https://www.sohu.com/a/390069986_115479
+
+### 国际观察：全球新冠疫情将加速世界秩序重构
+http://world.people.com.cn/n1/2020/0325/c1002-31647944.html
+
 ### 德语媒体：病毒助力zg崛起
 https://www.dw.com/zh/德语媒体病毒助力zg崛起/a-53080012
 
@@ -90,6 +104,12 @@ rq组织称，在公民被分心的情况下，zf可能会继续吸收更多权�
 以往仓促颁布的法律，如9·11袭击后的《爱g者法案》(Patriot Act)，在它本来要应对的危机结束后仍然存在着。
 
 塑造紧急q力真的很容易，”鲁岑说。“拆解它们就很难了。
+
+### 巴西卡车司机罢工致全g瘫痪 总统授权j队q场
+https://baijiahao.baidu.com/s?id=1601511843443870905
+
+### 法媒：里约出动j队镇y犯罪集团w护和平安全
+http://www.dzwww.com/xinwen/guojixinwen/201707/t20170730_16226425.htm
 
 ### 谁提出“我们都有两只手 不在城里吃闲饭”口号
 http://news.ifeng.com/history/zhiqing/xiaohua/detail_2012_08/10/16703668_0.shtml

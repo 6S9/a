@@ -1,3 +1,6 @@
+### Emojipedia
+https://emojipedia.org/dashing-away/
+
 ### emoji
 https://zh.wikipedia.org/wiki/繪文字
 

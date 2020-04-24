@@ -1,3 +1,6 @@
+请选择扶贫方式
+![](https://wx2.sinaimg.cn/large/b10c1bc2ly1ge47tf5gb5j208c08cjtb.jpg)
+
 好羡慕啊`墙，门缝，狗头`
 ![](https://wx2.sinaimg.cn/large/006EyLajly1gdpy6ztu8jg30ge0gejxx.gif)
 

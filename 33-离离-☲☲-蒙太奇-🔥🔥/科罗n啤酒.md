@@ -3,6 +3,9 @@ https://tech.sina.com.cn/roll/2020-04-07/doc-iimxxsth4091883.shtml
 
 科罗娜美国”发布了4款新口味含酒精气泡水的广告，并用“马上上岸（coming ashore soon）”来表达新品上市，结果却遭到了网友的抨击——这是在暗示病毒马上就要来了吗？
 
+### 坚决辟谣”没人信,不如尝试“以事实证明
+http://news.sohu.com/s2010/dianji511/
+
 ### 荷兰媒体报道zg产口罩因“不合格”被召回？商务部还原真相`2020-04-02`
 http://politics.gmw.cn/2020-04/02/content_33709975.htm
 
@@ -43,7 +46,13 @@ https://baijiahao.baidu.com/s?id=1662824549463704576
 ### 尊重生命，数据修正的根本逻辑`2020年04月14`
 https://baijiahao.baidu.com/s?id=1664203285715291689
 
----
+<details><summary>慎入🔞NSFW</summary>
+
+Not Safe For Work
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Biohazard_Symbol_Specification.png/210px-Biohazard_Symbol_Specification.png)
+
+<details><summary><b>风险自理Use At Your Own Risk🈲</summary>
+
 ### 她用生命担保：y情不是y自实验sbdx露`2020年02月03`
 https://news.sina.com.cn/c/2020-02-03/doc-iimxxste8358663.shtml
 
@@ -53,11 +62,20 @@ https://tech.sina.com.cn/roll/2020-02-05/doc-iimxxste9079567.shtml
 ### gj监委调查组抵达武h`2020年02月08`
 http://www.chinanews.com/gn/2020/02-08/9083442.shtml
 
+### zg首席sh武器专家陈w少将接管whP4bd实验s`10/02/2020`
+http://www.rfi.fr/cn/zg/20200208-zg首席sh武器专家陈w少将接管whp4bd实验s
+### 给rm吃下定心丸！zgsh武器专家陈w，接管whP4级实验s 
+http://dy.163.com/v2/article/detail/F5M8FKQR0514C6GR.html
+
+### gj重点实验s主任李n院士，出售实验s动物贪污被判12年
+https://new.qq.com/rain/a/20200218A0RWYE00
+### 触目惊心！zg工程y院士出售实验室动物获利千万，被判12年！`2020-02-13`
+https://www.sohu.com/a/372741211_100084820
+
 ### 湖b省ws记、武h市ws记双双换帅！分别从上海、济南调任！`2020-02-13`
 https://www.sohu.com/a/372779264_678892
 
 ### zy重磅会议重视生物安全 生物安全法有望加快出台`2020年02月14`
 http://finance.sina.com.cn/china/gncj/2020-02-14/doc-iimxxstf1492670.shtml
-
-### 坚决辟谣”没人信,不如尝试“以事实证明
-http://news.sohu.com/s2010/dianji511/
+</details>
+</details>

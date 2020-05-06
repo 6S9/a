@@ -5,6 +5,10 @@ Not Safe For Work
 
 <details><summary><b>风险自理Use At Your Own Risk🈲</summary>
 
+AISS爱丝 -《2016新春特辑-迎春接福
+https://www.meitulu.com/item/8488.html
+![](https://img.gzhuibei.com/images/img/8488/10.jpg)
+
 ### AISS爱丝 《美卦师》写真套图
 https://www.meitulu.com/item/8479.html
 ![](https://mtl.gzhuibei.com/images/img/8478/1.jpg)

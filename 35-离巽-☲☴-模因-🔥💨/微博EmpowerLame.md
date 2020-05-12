@@ -1,3 +1,8 @@
+真正的作家幽默风趣，活力永驻。劳逸结合，懂得调养。内心平淡，不存压力。合理膳食，均衡搭配。
+而最基本的秘诀就在于：日更万字。你看他，他虽然三十岁了。但是依旧精神矍铄。
+@晋江一舂溪笛晓
+![](https://wx4.sinaimg.cn/large/005B6PjLly1gdsetdqm4ej30u00trn02.jpg)
+
 我就是个废物，干啥啥不行
 ![](https://wx1.sinaimg.cn/large/007rner3ly1ge4v9j50v1j308c08cq2y.jpg)
 
@@ -10,7 +15,10 @@
 大粗腿给你稳稳的幸福
 ![](https://img.alicdn.com/imgextra/i4/2201443756385/O1CN01e8LElS1x2NS5WwWoj_!!2201443756385.jpg)
 
-### 让父母的世界与你同步
+### 丧尸围城、权谋宫斗，时隔14个月回归的它再次席卷朋友圈
+https://new.qq.com/omn/20200315/20200315A0L0EE00.html
+
+让父母的世界与你同步
 ![](http://pc1.gtimg.com/softmgr/myapp/assets/images/2018-01.jpg)
 ![](http://pc1.gtimg.com/softmgr/myapp/assets/images/2018-02.jpg)
 

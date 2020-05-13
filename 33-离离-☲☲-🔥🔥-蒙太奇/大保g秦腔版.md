@@ -32,6 +32,9 @@ https://www.bilibili.com/video/BV1sJ411C7
 千万人间事，从兹不复言。
 >https://baike.baidu.com/item/归田/23398835
 
+### 法媒：疫情让zg消费者更愿购买国产商品
+https://baijiahao.baidu.com/s?id=1666535654851216121
+
 ### 巴西总统无视疫情反禁足，希望j队镇yzf异议者
 https://baijiahao.baidu.com/s?id=1664646287427227771
 

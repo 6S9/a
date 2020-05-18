@@ -6,8 +6,11 @@
 我就是个废物，干啥啥不行
 ![](https://wx1.sinaimg.cn/large/007rner3ly1ge4v9j50v1j308c08cq2y.jpg)
 
-身后八个战狼
+身后八个战狼随行，你动她一下试试！
 ![](https://s3.pfp.sina.net/ea/ad/7/3/75a570162bfa0fe3f6588fc6e3fd98cf.gif)
+
+身后八名战狼随行，你动她一下试试
+![](http://s3.pfp.sina.net/ea/ad/2/7/523255220c3031a6c0f58009016c2d58.jpg)
 
 开放、人才、技术，成功的保障。`8991551884487296355 (300×600)`<br>
 ![](https://tpc.googlesyndication.com/simgad/8991551884487296355)

@@ -1,3 +1,19 @@
+石头和石头们
+`005YeBNBly4geuls6cyqsg30gm04cb2a.gif (598×156)`<br>
+![](https://wx3.sinaimg.cn/large/005YeBNBly4geuls6cyqsg30gm04cb2a.gif)
+
+放弃思考
+![](https://wx3.sinaimg.cn/large/b10c1bc2ly1geun000ujag20u00u0tea.gif)
+
+佛减肥法：天天大吃大喝，缘分到了自然会瘦下来
+![](https://wx4.sinaimg.cn/large/708cefb1ly1gesxl12n4mg20j60ga47a.gif)
+
+身后八个战狼随行，你动她一下试试！
+![](https://s3.pfp.sina.net/ea/ad/7/3/75a570162bfa0fe3f6588fc6e3fd98cf.gif)
+
+身后八名战狼随行，你动她一下试试
+![](http://s3.pfp.sina.net/ea/ad/2/7/523255220c3031a6c0f58009016c2d58.jpg)
+
 她生气必须哄，无论谁对谁错。
 ![](http://img3.imgtn.bdimg.com/it/u=3303986871,3023074738&fm=26&gp=0.jpg)
 ![](https://ss3.bdstatic.com/70cFv8Sh_Q1YnxGkpoWK1HF6hhy/it/u=3303986871,3023074738&fm=26&gp=0.jpg)

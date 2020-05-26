@@ -39,6 +39,9 @@ https://tech.ifeng.com/c/7vXBdI1IL8y
 ### 新冠试剂出口暂停 东方生物信披前后矛盾`2020年04月20`
 http://news.sina.com.cn/o/2020-04-20/doc-iirczymi7287312.shtml
 
+### 商务部：zg出口防疫物资质量总体是好的
+https://baijiahao.baidu.com/s?id=1667668777850316591
+
 ---
 ### 针对美gz客指责zg隐瞒疫情，我外j部：停止诋毁zg`2020年04月02`
 https://baijiahao.baidu.com/s?id=1662824549463704576
@@ -64,7 +67,7 @@ http://www.chinanews.com/gn/2020/02-08/9083442.shtml
 
 ### zg首席sh武器专家陈w少将接管whP4bd实验s`10/02/2020`
 http://www.rfi.fr/cn/zg/20200208-zg首席sh武器专家陈w少将接管whp4bd实验s
-### 给rm吃下定心丸！zgsh武器专家陈w，接管whP4级实验s 
+### 给rm吃下定心丸！zgsh武器专家陈w，接管whP4级实验s
 http://dy.163.com/v2/article/detail/F5M8FKQR0514C6GR.html
 
 ### gj重点实验s主任李n院士，出售实验s动物贪污被判12年
@@ -77,5 +80,6 @@ https://www.sohu.com/a/372779264_678892
 
 ### zy重磅会议重视生物安全 生物安全法有望加快出台`2020年02月14`
 http://finance.sina.com.cn/china/gncj/2020-02-14/doc-iimxxstf1492670.shtml
+
 </details>
 </details>

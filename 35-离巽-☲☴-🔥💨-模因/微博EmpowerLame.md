@@ -1,4 +1,7 @@
-石头和石头们
+我偏要杠<br>
+![](https://wx2.sinaimg.cn/large/b10c1bc2ly1gfixvphns2g21400u04np.gif)
+
+大胆说话，勇敢前行
 `005YeBNBly4geuls6cyqsg30gm04cb2a.gif (598×156)`<br>
 ![](https://wx3.sinaimg.cn/large/005YeBNBly4geuls6cyqsg30gm04cb2a.gif)
 

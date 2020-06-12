@@ -1,8 +1,26 @@
 ### OcrSpace
 https://ocr.space
 
-#### OnLineOCR
+### OnLineOCR
 https://www.onlineocr.net
+
+### Extract Links from Page
+https://hackertarget.com/extract-links/
+
+#### URL Extractor
+https://urlextractor.net
+
+### CatchVideo
+https://catchvideo.net
+
+### OwiDig
+https://www.owidig.com
+
+### Add Prefix and Suffix to Text
+https://miniwebtool.com/add-prefix-and-suffix/
+
+### ADD TEXT TO EACH LINE ONLINE
+https://pinetools.com/add-text-each-line
 
 ### 在线网址链接批量生成器
 http://tools.jb51.net/aideddesign/ljscq

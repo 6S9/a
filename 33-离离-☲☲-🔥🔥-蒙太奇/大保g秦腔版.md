@@ -32,8 +32,11 @@ https://www.bilibili.com/video/BV1sJ411C7
 千万人间事，从兹不复言。
 >https://baike.baidu.com/item/归田/23398835
 
+### 分析：是股市还是赌场？ 被疫情困在家里的散户狂热炒美股
+https://cn.reuters.com/article/health-coronavirus-retail-usa-stock-0610-idCNKBS23J02Y
+
 ### 防疫采集的个人信息，疫后该得到妥善处理
-www.bjnews.com.cn/opinion/2020/05/26/731644.html
+http://www.bjnews.com.cn/opinion/2020/05/26/731644.html
 
 ### 法媒：疫情让zg消费者更愿购买国产商品
 https://baijiahao.baidu.com/s?id=1666535654851216121

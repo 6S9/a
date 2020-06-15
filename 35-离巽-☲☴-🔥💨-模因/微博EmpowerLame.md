@@ -1,3 +1,9 @@
+程序员修电脑，专业贴膜<br>
+![](https://wx2.sinaimg.cn/large/006ybJO7ly1gfg5lmixrpj308c08cwfn.jpg)
+
+焦头烂鹅<br>
+![](https://wx3.sinaimg.cn/large/006vZnzHly1gel3ttqvs8g308c08cmyb.gif)
+
 我偏要杠<br>
 ![](https://wx2.sinaimg.cn/large/b10c1bc2ly1gfixvphns2g21400u04np.gif)
 

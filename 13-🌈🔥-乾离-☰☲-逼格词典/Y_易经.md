@@ -1,6 +1,9 @@
 ### 周易
 https://www.gushiwen.org/guwen/zhouyi.aspx
 
+### 易传
+https://so.gushiwen.cn/guwen/book_46653FD803893E4F68FD6588DE2463D0.aspx
+
 #### 乾卦  
 译注
 

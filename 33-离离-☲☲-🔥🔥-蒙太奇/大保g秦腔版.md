@@ -26,11 +26,11 @@ https://www.bilibili.com/video/BV1sJ411C7
 23. 羁縻气志，消磨棱角。
 24. 介绍成果，推广经验。
 
-智巧既萌
->https://baike.baidu.com/item/劝农
+### rm日报rm论坛：集t主义绽放新光芒
+http://opinion.people.com.cn/GB/n1/2020/0415/c1003-31673472.html
 
-千万人间事，从兹不复言。
->https://baike.baidu.com/item/归田/23398835
+### 集t主义在战“疫”中绽放光芒
+http://theory.gmw.cn/2020-06/14/content_33909537.htm
 
 ### 分析：是股市还是赌场？ 被疫情困在家里的散户狂热炒美股
 https://cn.reuters.com/article/health-coronavirus-retail-usa-stock-0610-idCNKBS23J02Y

@@ -1,3 +1,9 @@
+害，狗盆，头盔，柴犬<br>
+![](https://wx2.sinaimg.cn/large/b10c1bc2ly1gfuc09up7rg20c80bjjv4.gif)
+
+毁灭吧，烦了<br>
+![](https://wx2.sinaimg.cn/large/007fAmuZly1gfnfrk9a1cg30b40b440q.gif)
+
 程序员修电脑，专业贴膜<br>
 ![](https://wx2.sinaimg.cn/large/006ybJO7ly1gfg5lmixrpj308c08cwfn.jpg)
 

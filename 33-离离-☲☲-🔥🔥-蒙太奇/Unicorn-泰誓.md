@@ -1,3 +1,9 @@
+### 特朗普派美军消灭“自治区”？西雅图市长：那么做违宪违法
+https://baijiahao.baidu.com/s?id=1669270145383622598
+
+### 美军参与镇压属违宪,但特朗普需要军方支持
+https://new.qq.com/omv/video/r09784zpk97
+
 ### 特朗普称美国总统有绝对权威 纽约州长当场驳斥:美国没有国王,只有宪法
 https://news.jsdushi.cn/guonei/2020/0414/5228.shtml
 

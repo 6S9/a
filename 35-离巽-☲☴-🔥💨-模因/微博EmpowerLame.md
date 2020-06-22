@@ -1,3 +1,6 @@
+狗装瘸<br>
+![](https://wx3.sinaimg.cn/large/d8b41602gy1gg0zjum8zgg20b10jn7wy.gif)
+
 害，狗盆，头盔，柴犬<br>
 ![](https://wx2.sinaimg.cn/large/b10c1bc2ly1gfuc09up7rg20c80bjjv4.gif)
 

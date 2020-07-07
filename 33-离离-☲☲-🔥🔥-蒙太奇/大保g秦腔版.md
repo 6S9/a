@@ -26,6 +26,9 @@ https://www.bilibili.com/video/BV1sJ411C7
 23. 羁縻气志，消磨棱角。
 24. 介绍成果，推广经验。
 
+### 美媒：zg牢牢把控全球医疗用品供应市场 其他gj试图自给挡不住z方
+http://news.chinaxiaokang.com/dujiazhuangao/20200706/997281.html
+
 ### rm日报rm论坛：集t主义绽放新光芒
 http://opinion.people.com.cn/GB/n1/2020/0415/c1003-31673472.html
 

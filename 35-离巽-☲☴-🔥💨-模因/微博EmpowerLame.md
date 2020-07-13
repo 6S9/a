@@ -1,3 +1,11 @@
+我的天啊，
+我居然是蝙蝠侠！
+相信自己，
+把不可能变成可能，
+把可能变成无限可能，
+你比你想象的更强大。
+![](https://wx4.sinaimg.cn/large/75b746e7gy1ggokckooctj20f00l20wt.jpg)
+
 狗装瘸<br>
 ![](https://wx3.sinaimg.cn/large/d8b41602gy1gg0zjum8zgg20b10jn7wy.gif)
 

@@ -35,3 +35,6 @@ https://www.crenlei.com/c/144.html
 
 ### 这是一个人性泯灭的时代
 https://www.crenlei.com/c/143.html
+
+### 恐怖诡异录 > 探索发现 > 
+http://www.fanganchina.com/lyjm/

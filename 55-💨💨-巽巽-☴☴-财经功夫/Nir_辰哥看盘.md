@@ -1,5 +1,8 @@
 ### Nir_辰哥看盘
 
+牛砸熊。
+![](https://wx3.sinaimg.cn/large/d8b41602gy1ggwljzuh7qj20fs08v78p.jpg)
+
 昨天，又想骗我炒股。今天，别拦我发财。
 ![](https://wx4.sinaimg.cn/large/d8b41602ly1ggh9ipabfmj20n00e77ep.jpg)
 

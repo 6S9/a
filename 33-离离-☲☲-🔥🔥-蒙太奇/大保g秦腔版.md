@@ -140,5 +140,6 @@ Not Safe For Work
 https://2newcenturynet.blogspot.com/2020/04/blog-post_86.html
 
 昨天任zq朋友的信里谈及，武汉病毒很可能是xjp预谋的，目的是造成美g经济大萧条，让川普彻底失去连任希望。无论真假，目前的局势，是这样发展的。
+
 </details>
 </details>

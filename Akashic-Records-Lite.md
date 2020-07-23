@@ -1,18 +1,7 @@
-<details><summary>慎入🔞NSFW</summary>
+### 记忆碎片
 
-Not Safe For Work
-![](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Biohazard_Symbol_Specification.png/210px-Biohazard_Symbol_Specification.png)
-
-<details><summary><b>风险自理Use At Your Own Risk🈲</summary>
-
-
-</details>
-</details>
-
----
-　20世纪的人，用19世纪的方式，管理21世纪的人？
----
 <details><summary>风险自理Use At Your Own Risk☣</summary>
 
+20世纪的人，用19世纪的方式，管理21世纪的人？
 
 </details>

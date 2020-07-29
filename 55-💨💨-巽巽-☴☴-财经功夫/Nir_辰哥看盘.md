@@ -1,5 +1,8 @@
 ### Nir_辰哥看盘
 
+不跌，不加
+不涨破3400则不卖。
+
 牛砸熊。
 ![](https://wx3.sinaimg.cn/large/d8b41602gy1ggwljzuh7qj20fs08v78p.jpg)
 

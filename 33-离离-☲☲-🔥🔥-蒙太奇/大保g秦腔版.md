@@ -26,6 +26,10 @@ https://www.bilibili.com/video/BV1sJ411C7
 23. 羁縻气志，消磨棱角。
 24. 介绍成果，推广经验。
 
+### 正当之举 必要之举
+——国际人士支持香g推迟立法会选举
+http://paper.people.com.cn/rmrb/html/2020-08/05/nw.D110000renmrb_20200805_1-03.htm
+
 ### 美媒：zg牢牢把控全球医疗用品供应市场 其他gj试图自给挡不住z方
 http://news.chinaxiaokang.com/dujiazhuangao/20200706/997281.html
 
@@ -135,6 +139,18 @@ Not Safe For Work
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Biohazard_Symbol_Specification.png/210px-Biohazard_Symbol_Specification.png)
 
 <details><summary><b>风险自理Use At Your Own Risk🈲</summary>
+
+### 活动人士称zg以隔离为名拘禁异见者
+https://cn.nytimes.com/china/20200731/coronavirus-china-qurantine/
+
+印度z府已抓捕并拘留了批评人士。菲律宾总统罗德里戈·杜特地(Rodrigo Duterte)最近曾授权j察进入人们家中搜找感染者。匈牙利总理现在可以无需征得同意便通过法令实施统z。
+
+他们只是想找个理由把我们关起来，”姜jw说。“疫情给了他们一个好理由。
+
+这是g家z策，现在是特殊时期，”陈明x说。“所以我们支持并理解这种做法。
+
+王qz说，j察经常来查看他，尽管他应该处于隔离状态。
+“那很荒谬，”他说。“他们真正的目的是让我闭嘴，叫我不要与我的朋友联系。
 
 ### 一剑飘尘：武h病毒到底是不是xjp预谋的？
 https://2newcenturynet.blogspot.com/2020/04/blog-post_86.html

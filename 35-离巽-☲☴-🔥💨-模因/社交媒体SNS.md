@@ -8,3 +8,6 @@
 @pepecrysis
 `灭了你哦，EfCgqNmUYAEa0YU (505×268)`<br>
 ![](https://pbs.twimg.com/media/EfCgqNmUYAEa0YU?format=png&name=orig)
+
+### Nippon Sailor Seals
+![](http://fap.to/images/full/45/127/1278339083.gif)

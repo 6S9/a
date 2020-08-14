@@ -192,6 +192,34 @@ GIGAZINE(ギガジン)
 `EeqIUJYVoAADlPt (421×432)`<br>
 ![](https://pbs.twimg.com/media/EeqIUJYVoAADlPt?format=jpg&name=orig)
 
+`EfJn3GBVoAc4FJp (625×671)`<br>
+![](https://pbs.twimg.com/media/EfJn3GBVoAc4FJp?format=png&name=orig)
+
+### 陽史🔞
+@aikoo_sun
+
+2020年8月13日
+
+`EeOL7miU0AA6_3q (900×1600)`<br>
+![](https://pbs.twimg.com/media/EeOL7miU0AA6_3q?format=png&name=orig)
+
+`EeOL8QeVoAAHCGc (900×1600)`<br>
+![](https://pbs.twimg.com/media/EeOL8QeVoAAHCGc?format=png&name=orig)
+
+`EctrTxmU0AEVIxJ (1077×1600)`<br>
+![](https://pbs.twimg.com/media/EctrTxmU0AEVIxJ?format=png&name=orig)
+
+`Ebd1BKTUEAAU-Wd (1104×621)`<br>
+![](https://pbs.twimg.com/media/Ebd1BKTUEAAU-Wd?format=png&name=orig)
+
+`Ea8naGNU4AQKGj7 (1600×985)`<br>
+![](https://pbs.twimg.com/media/Ea8naGNU4AQKGj7?format=png&name=orig)
+
+`Ea8nai4UMAEXIpn (1600×985)`<br>
+![](https://pbs.twimg.com/media/Ea8nai4UMAEXIpn?format=png&name=orig)
+
+2020年6月20日
+
 ### イズ
 @izukonohito
 `EFo_TblVUAEUdT6 (2160×1528)`<br>
@@ -205,13 +233,6 @@ GIGAZINE(ギガジン)
 
 `EeQjndEU8AIUkja (842×1291)`<br>
 ![](https://pbs.twimg.com/media/EeQjndEU8AIUkja?format=png&name=orig)
-
-### 陽史
-`EeOL7miU0AA6_3q (900×1600)`<br>
-![](https://pbs.twimg.com/media/EeOL7miU0AA6_3q?format=png&name=orig)
-
-`EeOL8QeVoAAHCGc (900×1600)`<br>
-![](https://pbs.twimg.com/media/EeOL8QeVoAAHCGc?format=png&name=orig)
 
 尤迟
 `EcT8np1UYAEJXfP (1120×1400)`<br>

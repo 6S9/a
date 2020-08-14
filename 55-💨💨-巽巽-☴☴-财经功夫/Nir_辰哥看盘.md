@@ -1,5 +1,8 @@
 ### Nir_辰哥看盘
 
+放心，大盘没事，关键点位都没破。
+![](https://wx1.sinaimg.cn/large/d8b41602gy1ghqcheoehuj208509ugpz.jpg)
+
 不跌，不加
 不涨破3400则不卖。
 

@@ -1,3 +1,7 @@
+义和团：挑铁路，拔电杆。
+`e39e2f93a8a4ef9abc438f48cff26d92.jpg (1920×1357)`<br>
+![](https://media.dwnews.net/dw/a3ZUIcCzMbFY3EmqXeN6Ljz1rfA%3D/320*0/media/images/dw/e39e2f93a8a4ef9abc438f48cff26d92.jpg)
+
 ゼンマイブック
 @zenmaibook
 三猿

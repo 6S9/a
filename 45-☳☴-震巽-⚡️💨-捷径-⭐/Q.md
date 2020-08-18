@@ -42,9 +42,14 @@ https://www.chromedownloads.net/chrome64win/
 ### Stack Overflow
 https://stackoverflow.com/questions/46734820/hidden-markdown-text-on-github
 
+### WiFi File Transfer Pro 1.0.9
+https://www.onlinedown.net/soft/596547.htm
+>http://sqdownd.rbread05.cn/down/com.smarterdroid.wififiletransferpro_1.0.9.apk
+
 ### 与熊论道
 http://hi.pcmoe.net/
 ![](http://hi.pcmoe.net/img/info1.jpg)
+
 <details><summary>风险自理Use At Your Own Risk</summary>
 
 ### stonEj
@@ -58,4 +63,5 @@ https://www.youtube.com/channel/UCIXOIjR2mp8tHz78DE0vj2A
 ### 陈qs
 https://www.youtube.com/channel/UCv361SF6FKznoGPKEFG9Yhw
 ![](https://yt3.ggpht.com/a/AATXAJwGDGb62HH_vW61drPc0bMlmr4beZ1LsAG9Hg)
+
 </details>

@@ -20,7 +20,7 @@ https://2newcenturynet.blogspot.com/2020/08/blog-post_66.html
 
 在zg期间，我只遇到一个知道这些情况的人。令我惊讶的是，他把这些事件解释为zgg产d对w吾尔族人的慷慨大方：“我们是在教导一群未开化的人如何饲养家畜并且用来卖掉赚钱。这有什么问题吗？
 
-约翰·斯图亚特·米尔（John Stuart Mill）关于言l自由重要性的名言：“所有禁言的g家必定犯错。
+约翰·斯图亚特·米尔（John Stuart Mill）关于言l自由重要性的名言：“所有禁言的g家必定犯错。`无考`
 
 </details>
 </details>

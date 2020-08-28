@@ -1,6 +1,8 @@
 ### 未来人KFK
 https://www.bilibili.com/video/BV1qC4y187B6
 
+我们现在随手可得的生活必需品，在那个年代所有的物质都变得非常的稀有珍贵。
+
 物联同步感知
 
 外星人巴夏：人类在失去繁殖能之前会有一场战争
@@ -19,3 +21,9 @@ https://www.bilibili.com/video/BV1qC4y187B6
 
 ### 2020後會發生什麼事？未來人KFK | 馬臉姐
 https://www.youtube.com/watch?v=FJ_zSsiM8-k
+
+### 搬运）【你可敢信】20200529-巴夏公布「公然接觸計畫」時間表！預言「2045奇異點
+https://www.bilibili.com/video/BV1nC4y1p7sS?p=2
+
+### 巴夏预言2020年到2050年，解密未来世界的成长方向
+https://www.bilibili.com/video/BV1gf4y127o1

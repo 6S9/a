@@ -1,3 +1,8 @@
+### 义乌指数”川普稳操胜券（20200830第2805
+https://www.youtube.com/watch?v=4GKbMiWVATc
+
+订单是不会作假的，因为订单是要花钱买的。
+
 ### lkq越来越像文g时期的zel
 https://www.youtube.com/watch?v=9TU-TM-Kz_g
 

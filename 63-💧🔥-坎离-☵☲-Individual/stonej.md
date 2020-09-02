@@ -3,6 +3,9 @@ https://www.youtube.com/watch?v=4GKbMiWVATc
 
 订单是不会作假的，因为订单是要花钱买的。
 
+### zg试行数字化rm币利与弊（20200418第2023
+https://www.youtube.com/watch?v=Yrr5FgZiTd8
+
 ### lkq越来越像文g时期的zel
 https://www.youtube.com/watch?v=9TU-TM-Kz_g
 

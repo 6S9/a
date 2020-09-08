@@ -1,3 +1,10 @@
+### z印防长辛g和魏fh举行会晤（20200905第2836
+https://www.youtube.com/watch?v=STeBvQw4CZw
+
+我们z方一点责任没有，责任完全在你方面。
+
+他只要稍微有一点点软弱、妥协这种态度的话，g内的战狼小粉红能放过他吗？
+
 ### 义乌指数”川普稳操胜券（20200830第2805
 https://www.youtube.com/watch?v=4GKbMiWVATc
 

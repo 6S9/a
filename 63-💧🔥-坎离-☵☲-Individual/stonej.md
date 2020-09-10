@@ -1,3 +1,8 @@
+### zy邊境45年首傳槍聲，離1962年戰爭只差一件事；zg辦抗疫表彰大會，不小心洩漏了最害怕的事（文昭談古論今20200908第814
+https://www.youtube.com/watch?v=d5mLoPlfbVI
+
+这是在给l袖评功摆好呢，还是在挖坑高级黑呢？新h社背后的王hn最起码埋下了两个雷。
+
 ### z印防长辛g和魏fh举行会晤（20200905第2836
 https://www.youtube.com/watch?v=STeBvQw4CZw
 

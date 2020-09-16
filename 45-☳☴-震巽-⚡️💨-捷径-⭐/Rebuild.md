@@ -1,26 +1,28 @@
 ### Schedule
 
-### Tablacus Explorer
+### 7-Zip `19.00 (2019-02-21`
+https://www.7-zip.org/
 
-Version 20.6.9
+### Tablacus Explorer `Version 20.9.3`
 https://tablacus.github.io/explorer_en.html
 
-### HashMyFiles v2.36
+### HashMyFiles `v2.36`
 http://www.nirsoft.net/utils/hash_my_files.html
 
-### Everything 1.4.1.935
+### Everything `1.4.1.935`
 https://www.voidtools.com/zh-cn
 
-### Sizer 3.34
+### Sizer `3.34`
 http://www.brianapps.net/sizer/
 
-### Q-Dir 7.78
+### Q-Dir - The Quad-Explorer `8.88`
 http://www.softwareok.com/?Download=Q-Dir
 
-### Potlayer
+### Potlayer`20200908`
 https://potplayer.daum.net
 >https://t1.daumcdn.net/potplayer/PotPlayer/Version/Latest/PotPlayerSetup64.exe
-#### DaumPotPlayer
+
+### DaumPotPlayer
 https://daumpotplayer.com/download/
 >https://daumpotplayer.com/wp-content/uploads/2020/03/PotPlayerSetup64.exe
 

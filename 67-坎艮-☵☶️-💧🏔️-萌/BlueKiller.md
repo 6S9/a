@@ -12,12 +12,10 @@ http://blog.sina.com.cn/s/blog_b4721dbb0102ysra.html
 ![003iSzcTzy7FRnnJ5nZcb.png](https://i.loli.net/2020/09/21/5InYmPSckM3gveT.png)
 ![003iSzcTzy7GvjrY22yd6.png](https://i.loli.net/2020/09/21/NSIcZqEbMRoxO2X.png)
 
-`rectangle_large_type_2_400334f0a71f3a8ac2db812b00405158.png (1280×669)`<br>
-![](https://assets.st-note.com/production/uploads/images/33942279/rectangle_large_type_2_400334f0a71f3a8ac2db812b00405158.png?fit=bounds&quality=60&width=1280)
-
-[![003i-Szc-Tzy7-FRni3-EDB1f.png](https://i.postimg.cc/25qwnwzq/003i-Szc-Tzy7-FRni3-EDB1f.png)](https://postimg.cc/Ff4340km)
 https://cdn.imagefap.com/images/full/76/311/31142601.png?end=1600773320&secure=0f0d049f3ed96cb2539a7
 ![](https://cdn.imagefap.com/images/full/76/311/31142601.png?end=1600773320&secure=0f0d049f3ed96cb2539a7)
+
+[![003i-Szc-Tzy7-FRni3-EDB1f.png](https://i.postimg.cc/25qwnwzq/003i-Szc-Tzy7-FRni3-EDB1f.png)](https://postimg.cc/Ff4340km)
 
 <details><summary>慎入🔞NSFW</summary>
 
@@ -26,12 +24,13 @@ Not Safe For Work
 
 <details><summary><b>风险自理Use At Your Own Risk🈲</summary>
 
-Miguel Domínguez
+Miguel Domínguez：
 It was hard to do but worth it.
 Too bad I didn't get this skin
 PNG:
 >很难做到，但值得。
 太可惜了我没弄到这皮肤
+
 `EhlYLCMXYAUPWl3 (2048×1740)`<br>
 ![](https://pbs.twimg.com/media/EhlYLCMXYAUPWl3?format=jpg&name=orig)
 

@@ -1,3 +1,10 @@
+### 冬哥辣评，中秋直播，说点爱吧
+https://www.youtube.com/watch?v=iNlqmPaNvIs
+
+老bx之间坑蒙拐骗，。好不容易出去到油管这个自由的sh，也互相的骂互相的攻击。
+
+都是zg人如果大家不互相攻击，咱们共同做一些事不好吗？
+
 ### 徐晓冬17岁的花季
 https://www.youtube.com/watch?v=ElKRs9MNfrk
 

@@ -1,3 +1,6 @@
+是啊，没错，那又怎么样
+![](http://tiebapic.baidu.com/forum/pic/item/f3eeab8da977391267f9f13fef198618347ae2fb.jpg)
+
 大郎该喝药了
 `hq720.jpg (1280×720)`<br>
 ![](https://i.ytimg.com/vi/ZVkz4owtvIg/hq720.jpg)

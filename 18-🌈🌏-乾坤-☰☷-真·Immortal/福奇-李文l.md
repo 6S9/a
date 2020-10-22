@@ -1,3 +1,9 @@
+### 福奇因发布疫情信息遭死亡威胁 特朗普却批其“灾难
+http://www.cfi.net.cn/p20201020000616.html
+
+### 特朗普：福奇是个灾难 如果听他的我们会死50万人
+https://baijiahao.baidu.com/s?id=1681027515194339394
+
 ### 福奇：抗击疫情需坚持科学 避免z治纷争
 http://m.news.cctv.com/2020/07/15/ARTIujNbDyOU5eaLWA1ZB61m200715.shtml
 

@@ -1,3 +1,5 @@
+iTunes connect stuck(No SpringBoard)用iTunes101？
+
 ### iPod2,1_3.1.3_7E18_Restore.ipsw
 https://99baiduyun.com/file/1Mkc91N3j0bosQoBRNgDrOQ.html
 - iach

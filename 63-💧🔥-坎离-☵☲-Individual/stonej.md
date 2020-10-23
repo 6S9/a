@@ -1,3 +1,6 @@
+### 金ze参拜毛ay，毛ay死亡的真相，林b死亡的真相（20201022第3047
+https://www.youtube.com/watch?v=FaSZHdxuC-s
+
 ### 青d1089万份核酸检测“全部阴性”，这就是台湾人看不起大l人的原因（20201018第3033
 https://www.youtube.com/watch?v=BFhtYp92mGg
 

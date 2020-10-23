@@ -1,6 +1,12 @@
 ### Nir_辰哥看盘
 
+一切乱来的根源都是z度问题
+全面放开T➕0和涨跌幅
+还会这样吗？
+https://weibo.com/3635680770/JquJ8oDqF
+
 z度劣势摆在那里，就是不愿意去改进 ​​​​
+https://weibo.com/3635680770/JjXxvpGqE
 
 放心，大盘没事，关键点位都没破。
 ![](https://wx1.sinaimg.cn/large/d8b41602gy1ghqcheoehuj208509ugpz.jpg)

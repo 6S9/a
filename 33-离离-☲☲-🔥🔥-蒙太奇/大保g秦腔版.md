@@ -26,6 +26,9 @@ https://www.bilibili.com/video/BV1sJ411C7
 23. 羁縻气志，消磨棱角。
 24. 介绍成果，推广经验。
 
+### 普j：新冠病毒或改变世界进程zg将成为超级大g
+https://www.dwnews.com/全球/60216085/普j新冠病毒或改变世界进程zg将成为超级大g
+
 ### 正当之举 必要之举
 ——国际人士支持香g推迟立法会选举
 http://paper.people.com.cn/rmrb/html/2020-08/05/nw.D110000renmrb_20200805_1-03.htm

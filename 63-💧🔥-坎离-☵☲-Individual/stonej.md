@@ -84,6 +84,16 @@ Not Safe For Work
 
 <details><summary><b>风险自理Use At Your Own Risk🈲</summary>
 
+### 抗美援c，保家卫g的z相，c鲜战争到底谁输谁赢？（20201025第3052
+https://www.youtube.com/watch?v=imIvMBUc7Ho
+
+你要想象一下，may同志如果当时从北c鲜战场回去了。
+我们成功地在c鲜战场上消灭了may同志。
+
+may同志如果没有死在北c鲜的话，现在统治zg的是谁呢？就是m三胖啊。
+
+我们zg人也是还跟文g一样，还穿着那种蓝色的制服，还是拿着那个小本在那喊：mzx万岁，m三zx万岁。
+
 ### 恒d暴雷，负债8355亿，许家y威胁xjp，不救恒大，整个zg经济就垮了（20200924第2936
 https://www.youtube.com/watch?v=Vg6rXq8xLL8
 

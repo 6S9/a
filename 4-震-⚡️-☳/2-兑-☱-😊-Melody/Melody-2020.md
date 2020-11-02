@@ -6,10 +6,6 @@ https://music.163.com/#/song?id=1334802908&autoplay=0
 
 ### Enjoy The Moment With You
 https://music.163.com/#/playlist?id=98090069
-### morning flip
-https://music.163.com/#/song?id=481327537
-
-困兽：见不到你的每一天都是浪费
 
 ### SHIZK-大橋トリオ-PRETAPORTER
 https://music.163.com/#/song?id=22781797&autoplay=0

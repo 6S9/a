@@ -1,3 +1,15 @@
+### 真实的大w医院!叹为观止!
+~https://new.qq.com/omn/20201115/20201115A04WZS00.html~
+
+### 大w医院求医记
+https://new.qq.com/rain/a/20201115A00E0400
+
+### 大w医院求医记：病人进门，医院全责
+https://new.qq.com/omn/20201113/20201113A0F0CT00.html
+
+### 突发:大w集团正在被q行接g,或开w险先例
+~http://dy.163.com/article/FRH227LG0511CH1C.html~
+
 ### 孙大w其人其事
 https://2newcenturynet.blogspot.com/2020/11/blog-post_69.html
 

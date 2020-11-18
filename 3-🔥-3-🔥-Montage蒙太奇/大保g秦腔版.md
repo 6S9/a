@@ -36,6 +36,9 @@ http://paper.people.com.cn/rmrb/html/2020-08/05/nw.D110000renmrb_20200805_1-03.h
 ### 美媒：zg牢牢把控全球医疗用品供应市场 其他gj试图自给挡不住z方
 http://news.chinaxiaokang.com/dujiazhuangao/20200706/997281.html
 
+### 量化】回答沈逸老师，新冠疫情下越m主死越多吗？
+https://www.bilibili.com/video/av457721499/
+
 ### rm日报rm论坛：集t主义绽放新光芒
 http://opinion.people.com.cn/GB/n1/2020/0415/c1003-31673472.html
 

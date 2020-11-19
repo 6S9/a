@@ -1,3 +1,8 @@
+### 有些势力给钱雇油管主播攻击我，我享受骂他们的感觉
+https://www.youtube.com/watch?v=KXDHT4gcrpo
+
+我是以德，以理，以武技服人，要不然就干，要不然就说理。说理说不过，干也干不过。
+
 ### 徐晓d歌厅夺刀全记录！图片，视频
 https://www.youtube.com/watch?v=MoBUkYebN88
 

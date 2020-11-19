@@ -1,3 +1,12 @@
+### 土耳q总统荣登“伊斯l盟主”身份：打赢亚美尼亚战争，战果辉煌
+https://dy.163.com/article/FRPS8L960515DICI.html
+
+### 土耳其傍晚出现“天降万雷”震撼景观
+https://baijiahao.baidu.com/s?id=1679675072587326587
+
+### 希腊傍晚出现“天降万雷”震撼景观
+https://baijiahao.baidu.com/s?id=1675502613559371451
+
 ### 埃尔多a的野望是什么？
 https://www.zhihu.com/question/377722427
 ![](https://pic4.zhimg.com/v2-da5aea5e5f14df2923a190086ea80e96_r.jpg?source=1940ef5c)

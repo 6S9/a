@@ -4,6 +4,9 @@ https://music.163.com/#/song?id=36229050&autoplay=0
 ### 从前慢
 https://music.163.com/#/song?id=1334802908&autoplay=0
 
+### Pure R&B 90s`Various Artists`
+https://music.163.com/#/album?id=2879472
+
 ### Enjoy The Moment With You
 https://music.163.com/#/playlist?id=98090069
 

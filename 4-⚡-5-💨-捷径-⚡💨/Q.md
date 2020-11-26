@@ -12,6 +12,12 @@ https://hackertarget.com/extract-links/
 #### URL Extractor
 https://urlextractor.net
 
+### Twitter Video Downloader
+https://twittervideodownloader.com
+
+### Pornhub Downloader
+https://www.pornhubdownload.com
+
 ### CatchVideo
 https://catchvideo.net
 

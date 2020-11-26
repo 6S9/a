@@ -1,3 +1,9 @@
+### stone记
+https://www.youtube.com/channel/UCghLs6s95LrBWOdlZUCH4qw
+
+hqdefault.jpg (246×138)
+<img src="https://i.ytimg.com/vi/_q5jAPQ5Bjo/hqdefault.jpg?sqp=-oaymwEZCPYBEIoBSFXyq4qpAwsIARUAAIhCGAFwAQ==&rs=AOn4CLBSZtg2n0GCQ2U7UutLR_Orz2TO4g">
+
 ### 马y蚂蚁集团”背后真正的主人（20201106第3076
 https://www.youtube.com/watch?v=peQkATMW8Ps
 

@@ -1,3 +1,18 @@
+### 达克效应——每日三省
+https://baijiahao.baidu.com/s?id=1675060931498209934
+
+zg人智商高峰期，高考结束
+<img src="https://pics6.baidu.com/feed/cf1b9d16fdfaaf51072894f3d0a0b4e9f21f7aaa.jpeg?token=0d72a03438f10831d9755c3868135829">
+
+人间惨剧在这群没文化的人眼里，变成了可以用来挂在嘴边开玩笑的段子。
+<img src="https://pics2.baidu.com/feed/622762d0f703918fa072ba2e0dc906905beec4aa.jpeg?token=12a5ab7c713ad08c32669192a2b44a41">
+
+<img src="https://pics0.baidu.com/feed/d31b0ef41bd5ad6ec8461766da3f19dcb4fd3cfd.jpeg?token=a615c685d107c1b902b0eccd3e3e306b">
+
+我们这个时代让人困扰的事之一是：那些对事确信无疑的人其实很蠢，而那些富有想象力和理解力的人却总是怀疑和优柔寡断。”——贝特朗·罗素
+
+无知要比博学更容易产生自信。”—— 查尔斯·达尔文
+
 ### 二大爷：为什么越无知越自信，越喜欢阴谋论？
 https://2newcenturynet.blogspot.com/2020/09/blog-post_62.html
 

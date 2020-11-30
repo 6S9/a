@@ -147,6 +147,11 @@ Not Safe For Work
 
 <details><summary><b>风险自理Use At Your Own Risk🈲</summary>
 
+### 爷骂的不是李y，爷骂的是g产d（20201126第3148
+https://www.youtube.com/watch?v=50Lgdm5UI1c
+
+新冠这个疫情对美g是最坏的，对zg是最好的，帮了zg的大忙。多亏新g刚出来的时候我们m报了，我们说人不传人可防可控，把疫情闹大闹得全世界都有，zgz府这么做是对的。对美g等g造成了重大的伤害，对我们来讲这简直是千载难逢的好机会。
+
 ### 德语媒体：zg作为新冠赢家的真相
 https://www.dw.com/zh/德语媒体zg作为新冠赢家的真相/a-55384847
 

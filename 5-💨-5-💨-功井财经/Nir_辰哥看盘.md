@@ -1,5 +1,8 @@
 ### Nir_辰哥看盘
 
+少盯盘，多学知识
+<img src="https://wx3.sinaimg.cn/large/d8b41602ly1gl2a1d8ixtj20m80m8q6y.jpg">
+
 一根大阳线后不少人翻多
 指数立马就掉头了。
 

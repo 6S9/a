@@ -17,6 +17,8 @@ https://github.com/6S9/c/wiki/3
 ### Akasha ASSociation Augmented ANALysis
 >（笑）痛苦女王扩张后庭消退
 
+并非每个人都思考，但他们却有观点
+
 高晓s：德国，灌输，我们m族最苦难
 
 数字货币Stone

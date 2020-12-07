@@ -1,3 +1,15 @@
+致粉蛆：我乃尔等重生父母，再造爹娘
+https://www.youtube.com/watch?v=V3U3nxQN6UM
+
+粉蛆脑残是一方面，脑残不是致命伤。最致命的是没有幽默感，所以你说的那东西传播速度就没有我快。
+
+你离学术十万八千里，你离学术最近的时候就是小时候，看十万个为什么。
+
+### 深扒李y等後台，叫囂“武統”非蠢即壞！
+https://www.youtube.com/watch?v=cv5_PsGOtVU
+
+打打打，你去吗？你们家人去吗？流人家贫苦农家子弟的血，这坏逼坏透了。
+
 ### 看把袁腾f袁老师气的！这事儿没完！李y是个畜生
 https://www.youtube.com/watch?v=xxO6fkaS91U
 

@@ -7,3 +7,8 @@ https://baijiahao.baidu.com/s?id=1659071522635387154
 
 ### 抵制日本？你去过日本吗？你了解日本吗？
 http://mini.eastday.com/a/200310225744094.html
+
+### 保尔：批评朝贡体系，不能陷入殖民主义语境
+https://baijiahao.baidu.com/s?id=1685556648618623379
+
+`髯翁：批评资本体系，不能陷入封建主义语境`

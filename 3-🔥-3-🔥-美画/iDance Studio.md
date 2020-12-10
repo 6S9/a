@@ -1,8 +1,14 @@
-### POLE EMOTION 2019 | Suen Lee (EXOTIC EMOTION. SUPREME), South Korea
-https://www.youtube.com/watch?v=biTIO2Ngigk
+### POLESQUE SHOW 2019 | Allie Kamikaze (GRAND PRIX), Japan
+<img src="https://i.ytimg.com/vi/yCHgGjO9y98/hqdefault.jpg">
+https://www.youtube.com/watch?v=yCHgGjO9y98
 
-mqdefault_6s.webp (320×180)
-<img src="https://i.ytimg.com/an_webp/biTIO2Ngigk/mqdefault_6s.webp?du=3000&sqp=CMy0ov4F&rs=AOn4CLDWNUIJVVOpkOPnAGZNogyzedflgA">
+### EXOTIC GENERATION 2019 | Angelica Jupiter
+<img src="https://i.ytimg.com/vi/YsWqTi6GoGs/hqdefault.jpg">
+https://www.youtube.com/watch?v=YsWqTi6GoGs
+
+### POLE EMOTION 2019 | Suen Lee (EXOTIC EMOTION. SUPREME), South Korea
+<img src="https://i.ytimg.com/vi/biTIO2Ngigk/hqdefault.jpg">
+https://www.youtube.com/watch?v=biTIO2Ngigk
 
 ### Lexy Panterra - Dive (feat. Naji) / FOXYEN Choreography
 https://www.youtube.com/watch?v=90h-U6cSZ1g

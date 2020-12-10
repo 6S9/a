@@ -1,3 +1,9 @@
+仲村レグラ
+@regura
+殺しの目だ。。。
+EoZi3jzU0AEyUJZ (1536×2048)
+<img src="https://pbs.twimg.com/media/EoZi3jzU0AEyUJZ?format=jpg&name=orig">
+
 ディッコさん＠fantia@fanbox
 @dikkosan
 EmnNoTlVgAEayaY (600×406)
@@ -36,3 +42,15 @@ EmnNoTlVgAEayaY (600×406)
 
 ### Nippon Sailor Seals
 ![](http://fap.to/images/full/45/127/1278339083.gif)
+
+<details><summary>慎入🔞NSFW</summary>
+
+Not Safe For Work
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Biohazard_Symbol_Specification.png/210px-Biohazard_Symbol_Specification.png">
+
+<details><summary><b>风险自理Use At Your Own Risk🈲</summary>
+
+<img src="https://hw-cdn2.adtng.com/a7/creatives/53/574/804518/913067/913067_banner.gif">
+
+</details>
+</details>

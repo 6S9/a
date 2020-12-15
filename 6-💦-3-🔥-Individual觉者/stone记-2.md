@@ -5,6 +5,13 @@ Not Safe For Work
 
 <details><summary><b>风险自理Use At Your Own Risk🈲</summary>
 
+### zg迫害著名保钓人士，充分说明抗日只是偶尔的需要（20201211第3198
+https://www.youtube.com/watch?v=vT9Lu8xFgHM
+
+跟日本关系不好了，需要了你么出来闹一闹。保卫钓鱼d，抗日砸日本车OK，这是zf需要的时候。zf不需要的时候你们老实待着，不要抗日。亲日的时候举着鲜花，说欢迎欢迎，热烈欢迎。不需要的时候zf一个眼色，拿着臭鸡蛋往日本领事馆里扔，拿着车锁去砸日本车。
+
+该拿鲜花的时候你还砸日本车，zgzf就要治理治理你了，治理你的原因跟你到底是抗日保钓还是亲日没有关系，治你的原因是你不长眼眉，是你不懂事，不听上面的。
+
 ### 讲清楚：m主d和g和d都有人选举作弊（20201108第3086
 https://www.youtube.com/watch?v=YmvhTGwPHnM
 

@@ -26,6 +26,9 @@ https://www.bilibili.com/video/BV1sJ411C7
 23. 羁縻气志，消磨棱角。
 24. 介绍成果，推广经验。
 
+### 李l：抗疫“收益”多少？67万亿
+https://user.guancha.cn/main/content?id=420604
+
 ### 普j：新冠病毒或改变世界进程zg将成为超级大g
 https://www.dwnews.com/全球/60216085/普j新冠病毒或改变世界进程zg将成为超级大g
 

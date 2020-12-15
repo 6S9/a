@@ -1,3 +1,9 @@
+### 这是昨天11号的视频 无奈呵呵
+https://www.youtube.com/watch?v=0RDVc4cFXQE
+
+Wenbin Xu
+冬哥是能打的里面最伶牙俐齿的，伶牙俐齿里面最能打的，狗g们就怕冬哥这种人，哈哈
+
 ### 有些势力给钱雇油管主播攻击我，我享受骂他们的感觉
 https://www.youtube.com/watch?v=KXDHT4gcrpo
 

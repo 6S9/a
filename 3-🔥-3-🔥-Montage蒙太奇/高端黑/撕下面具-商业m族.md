@@ -1,3 +1,12 @@
+### 认清g家资本主义”问题的真相
+http://www.xinhuanet.com/politics/2018-09/01/c_1123363220.htm
+
+### 印度发布山寨版“抖音”，谷歌和微软投资一亿美金，看完长见识了
+https://new.qq.com/rain/a/20201225A0AVGZ00
+
+### 印度本土类似TikTok应用引来高额投资
+https://www.dw.com/zh/%E5%8D%B0%E5%BA%A6%E6%9C%AC%E5%9C%9F%E7%B1%BB%E4%BC%BCtiktok%E5%BA%94%E7%94%A8%E5%BC%95%E6%9D%A5%E9%AB%98%E9%A2%9D%E6%8A%95%E8%B5%84/a-56046203
+
 ### 抖音反击扎克伯格：抄袭、山寨 还伪装成爱g主义
 https://news.163.com/20/0730/11/FIPFNGIJ0001899O.html
 

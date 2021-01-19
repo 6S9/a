@@ -14,3 +14,6 @@ https://zh.wikipedia.org/wiki/向松祚
 https://www.ipkmedia.com/向松z：m营企业家的心态需要我们是无奈的选/
 
 历史已经反复证明，g有企业不可能搞好。g有企业能够搞好，我们还需要改g吗？
+
+### m营企业“炫富摔”：56789之外，z书记加了一个“实
+http://news.youth.cn/sz/201811/t20181104_11773812.htm

@@ -1,3 +1,9 @@
+### 我的前半生（算命 下）（20210115第3386
+https://www.youtube.com/watch?v=odUmueB6h2c
+
+### 红楼梦》是一部讽刺女孩子的小说，古今通用
+https://baijiahao.baidu.com/s?id=1649447770903348948
+
 <details><summary>慎入🔞NSFW</summary>
 
 Not Safe For Work

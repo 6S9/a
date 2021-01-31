@@ -1,5 +1,11 @@
 <img src="">
 
+女童吓跑男童
+<img src="https://wx3.sinaimg.cn/large/d8b41602ly1gn398maq4bg205w07y1l0.gif">
+
+蘑菇云和平鸽
+<img src="http://5b0988e595225.cdn.sohucs.com/images/20200229/7911487d406f4a7fade84c64707f611d.jpeg">
+
 ### 数据威：猪肉推动CPI持续走高 电商市场表现不明显
 https://new.qq.com/omn/20191025/20191025A08UBR00.html
 

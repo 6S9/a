@@ -1,3 +1,10 @@
+### 造价10亿美元的“普j宫殿” （20210128第3464
+https://www.youtube.com/watch?v=obZOkif58Rw
+
+如果当年你说事实说实话不被理解，不能改变这个gj的时候，说明这个gj和这个gj的rm没有准备好要做改变。
+
+不再往下多说了，多说了各种闲言碎语又出来了。给普j洗地，认识普j，看上普j他闺女了。
+
 ### 我的前半生（酒鬼 下）（20210123第3440
 https://www.youtube.com/watch?v=BezuuTIzMto
 

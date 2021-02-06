@@ -12,3 +12,6 @@ http://www.chinanews.com/gj/2014/11-06/6759260.shtml
 
 ### 造价10亿美元的“普j宫殿” （20210128第3464
 https://www.youtube.com/watch?v=obZOkif58Rw
+
+### 普j宫殿”被一名普j亲信亿万富豪出面认领
+https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210131-%E6%99%AE%E4%BA%AC%E5%AE%AB%E6%AE%BF-%E8%A2%AB%E4%B8%80%E5%90%8D%E6%99%AE%E4%BA%AC%E4%BA%B2%E4%BF%A1%E4%BA%BF%E4%B8%87%E5%AF%8C%E8%B1%AA%E5%87%BA%E9%9D%A2%E8%AE%A4%E9%A2%86

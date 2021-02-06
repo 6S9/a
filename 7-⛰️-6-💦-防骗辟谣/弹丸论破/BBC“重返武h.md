@@ -1,3 +1,6 @@
+### 英媒采访首批撤离武h的英国人：真希望没赶上飞机，留在武h
+https://www.thepaper.cn/newsDetail_forward_11023292
+
 ### 时隔一年，BBC记者重访湖北被商户教育：你们g外那个不叫自由
 https://haokan.baidu.com/v?vid=6381861672933438269
 

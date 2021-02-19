@@ -1,3 +1,8 @@
+### 纽约州长库莫指责拜登的黑幕（20210217第3552
+https://www.youtube.com/watch?v=IICiJWq7Jm4
+
+老百姓只有7分钟的记忆，他们撂爪就忘了。
+
 ### 我的前半生（传统武术）《清理整治武术乱象规范赛事活动管理办法》下（20210201第3485
 https://www.youtube.com/watch?v=8vuHpBzSvwY
 

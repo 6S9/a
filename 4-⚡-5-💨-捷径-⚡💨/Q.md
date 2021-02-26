@@ -52,9 +52,6 @@ https://www.nihongomaster.com/dictionary
 `front_classroom.png (174×172)`<br>
 ![](https://www.nihongomaster.com/images/front_classroom.png)
 
-### Chrome 64bit Windows
-https://www.chromedownloads.net/chrome64win/
-
 ### Emoji辭典
 https://www.emojiall.com/zh-hant/emoji/🏔️
 

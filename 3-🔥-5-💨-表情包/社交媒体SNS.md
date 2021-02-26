@@ -1,3 +1,9 @@
+### 搞笑汇43：想不到招财猫也开始练肌肉了
+https://new.qq.com/omn/20201104/20201104A0HZXH00.html
+
+如果得不到同意我还有b计划
+![](https://inews.gtimg.com/newsapp_bt/0/12717605266/)
+
 仲村レグラ
 @regura
 殺しの目だ。。。

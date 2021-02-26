@@ -26,5 +26,8 @@ https://potplayer.daum.net
 https://daumpotplayer.com/download/
 >https://daumpotplayer.com/wp-content/uploads/2020/03/PotPlayerSetup64.exe
 
+### Chrome 64bit Windows
+https://www.chromedownloads.net/chrome64win/
+
 ### Opera 64-bit
 https://www.opera64bit.com/

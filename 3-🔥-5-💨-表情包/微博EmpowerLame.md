@@ -1,4 +1,5 @@
-<img src="">
+熊排队
+![](https://wx3.sinaimg.cn/large/d8b41602gy1gnyxaolpssg20b408wtzg.gif)
 
 女童吓跑男童
 <img src="https://wx3.sinaimg.cn/large/d8b41602ly1gn398maq4bg205w07y1l0.gif">

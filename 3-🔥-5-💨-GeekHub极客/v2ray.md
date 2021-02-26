@@ -4,13 +4,13 @@ https://github.com/2dust/v2rayN/releases
 下载v2rayN.zip解压
 - 打开v2rayN.exe 订阅-订阅设置
 
-1. https://iwxf.netlify.app
-
 1. https://jiang.netlify.com/
 
 1. https://raw.githubusercontent.com/ssrsub/ssr/master/v2ray
 
 添加上述地址，更新，http代理开启pac，点击服务器回车切换
+
+1. https://iwxf.netlify.app
 
 3. https://youlianboshi.netlify.com/
 

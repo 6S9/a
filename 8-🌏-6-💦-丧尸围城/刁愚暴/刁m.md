@@ -1,3 +1,6 @@
+sh主义资本市场的主要矛盾是rmqz想要一夜暴富的急迫心情，与j管层想要大家慢慢来之间的尖锐冲突
+![](https://wx4.sinaimg.cn/large/d8b41602ly1gj2wue1qprj20n00c0n29.jpg)
+
 ### 公路被撒钢钉2公里司机捡70多颗，网友：看完吓一跳这钉也太长了
 https://new.qq.com/omn/20201009/20201009A0650A00.html
 

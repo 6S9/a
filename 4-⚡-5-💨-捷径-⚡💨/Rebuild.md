@@ -1,5 +1,8 @@
 ### Schedule
 
+### Windows Update Blocker v1.6
+https://www.sordum.org/9470/windows-update-blocker-v1-6/
+
 ### 7-Zip `19.00 (2019-02-21`
 https://www.7-zip.org/
 

@@ -1,3 +1,6 @@
+真是道德沦丧，世风日下。
+![](https://wx1.sinaimg.cn/large/d8b41602gy1gocujcxiesj20aw0byafk.jpg)
+
 熊排队
 ![](https://wx3.sinaimg.cn/large/d8b41602gy1gnyxaolpssg20b408wtzg.gif)
 

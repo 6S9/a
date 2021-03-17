@@ -1,3 +1,6 @@
+功德无量放生机器
+![](https://pic2.zhimg.com/v2-5c5424fe74ca9249af3aea9de8054df7.jpg)
+
 ### 搞笑汇43：想不到招财猫也开始练肌肉了
 https://new.qq.com/omn/20201104/20201104A0HZXH00.html
 

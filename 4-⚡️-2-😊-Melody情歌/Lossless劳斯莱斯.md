@@ -51,5 +51,5 @@ https://www.lanzous.com/b142162
 ### 无名音乐（原废柴音乐
 https://www.lanzous.com/b342910/
 
-### ~~MusicTools~~
-https://www.lanzous.com/b723803
+### MusicTools v1.9.2.0
+http://tool.yijingying.com/musictools/

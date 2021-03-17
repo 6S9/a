@@ -122,3 +122,9 @@ https://www.youtube.com/watch?v=DAYrfBZ6j7g
 https://www.youtube.com/watch?v=Ce-M4aAS9K8
 
 小粉h五m他们有一种错觉。0505
+
+### 我的三个新理论：地铁论、俱乐部论、青训论。中国如何走向民主法制自由（20180616第73
+https://www.youtube.com/watch?v=2myXesNf1cs
+
+### 总结一下我的五个理论。1.智商是一个圈 2.蘑菇论 3.农民家门口的小汽车 4.中国足球队理论 5.斯德哥尔摩综合征理论（20180512第45
+https://www.youtube.com/watch?v=TaTdufro-fw

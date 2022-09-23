@@ -1,6 +1,10 @@
 ### Check Yourself Before You Wreck Yourself
 https://music.163.com/#/song?id=29999360
 
+Dolls realize
+
+SWAGROOVES
+
 ### Check Yo Self (Remix
 https://music.163.com/#/song?id=18353545
 

@@ -24,8 +24,8 @@ https://www.tubeoffline.com/download-PornHub-videos.php
 ### CatchVideo
 https://catchvideo.net
 
-### OwiDig
-https://www.owidig.com
+### The Best XVideos Downloader 2020
+https://www.xvideosdownload.net/download/fun-at-work-full-sounds/
 
 ### Add Prefix and Suffix to Text
 https://miniwebtool.com/add-prefix-and-suffix/
@@ -39,6 +39,12 @@ http://tools.jb51.net/aideddesign/ljscq
 
 ### IP地址查询
 http://www.ip138.com/
+
+### Markdown在线编辑、实时预览
+https://1024tools.com/markdown
+
+### URL解码、URL编码、urlencode/urldecode
+https://1024tools.com/urlencode
 
 ### Markdown在线编辑、实时预览
 https://tool.ip138.com/markdown/
@@ -57,10 +63,6 @@ https://www.emojiall.com/zh-hant/emoji/🏔️
 
 ### Stack Overflow
 https://stackoverflow.com/questions/46734820/hidden-markdown-text-on-github
-
-### WiFi File Transfer Pro 1.0.9
-https://www.onlinedown.net/soft/596547.htm
->http://sqdownd.rbread05.cn/down/com.smarterdroid.wififiletransferpro_1.0.9.apk
 
 ### 与熊论道
 http://hi.pcmoe.net/

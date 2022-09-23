@@ -41,3 +41,14 @@ t耳其面临沉重的债务，如果和平发展，必然踩入债务陷阱，�
 和伊朗互相配合，但又驱赶什叶派武装
 
 在这么多把刀尖上跳舞，还没玩砸，不论如何埃尔多a的水平是很高的。
+
+<p><font size="4"><b>
+野心不小！r耳其刚刚有大动作，又做起了“奥斯曼帝g”的美梦？</b></font>
+https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10105269049269146602%22%7D
+
+<font size="1" style="color:#DCDCDC"><b>2021/11/18 下午2:40:13</b></font>
+
+印尼，左右逢源
+https://m.thepaper.cn/baijiahao_19257097
+
+<font size="1" style="color:#DCDCDC">2022-08-01</font>

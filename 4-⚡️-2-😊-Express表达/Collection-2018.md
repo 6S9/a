@@ -25,11 +25,17 @@ https://music.163.com/#/song?id=417859263&autoplay=0
 ### Dearest
 https://music.163.com/#/song?id=396641
 
+k克瑞：我的意思是他们去日本发展了，然而在zg却没有这样的舞台
+
 ### You Make Me Feel Brand New Richard Elliot
 https://www.kugou.com/song/rs1tc7.html
 
 ### Day of Judgement-Void
 https://music.163.com/#/song?id=836798&autoplay=0
+
+歌手：void
+
+所属专辑：JP-H/D #01
 
 ### Days of Judgement-Eclipse Prophecy
 https://www.xiami.com/song/U5G85926b10

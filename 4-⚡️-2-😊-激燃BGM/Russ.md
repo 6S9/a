@@ -24,6 +24,15 @@ I might say too much
 
 M-IIII：我渴望的不是一个肉体，不是一起做乐，我渴望有那么一个灵魂，可以看透我放纵下的清澈 牵起我的手，提醒我“你看远处的山多么飘渺不真实，停下来，让我拯救你
 
+Psycho
+https://music.163.com/#/song?id=28662031
+
+ASSHOLE
+https://music.163.com/#/song?id=1418530421
+
+BEST ON EARTH (Bonus)
+https://music.163.com/#/song?id=1418530429
+
 ### BEST ON EARTH
 https://music.163.com/#/song?id=1397649656&autoplay=0
 

@@ -15,8 +15,5 @@ https://music.163.com/#/song?id=468585482&autoplay=0
 ### Mila J
 https://music.163.com/#/song?id=522223529&autoplay=0
 
-### 吧噜吧啦
+吧噜吧啦
 https://music.163.com/#/song?id=469430100&autoplay=0
-
-### Living Inside Your Love 
-https://www.kugou.com/song/d7yu476.html

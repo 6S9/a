@@ -26,6 +26,15 @@ https://www.bilibili.com/video/BV1sJ411C7
 23. 羁縻气志，消磨棱角。
 24. 介绍成果，推广经验。
 
+<font size="2"><b>
+秦始皇封几棵树为五大夫，天启皇帝封大炮为平辽将军，孰优孰劣？</b></font><br>
+https://baijiahao.baidu.com/s?id=1706950047847903195&wfr=spider&for=pc
+
+护g大将军
+https://p2.img.cctvpic.com/imagepic//C31027/ibugu/images/img1316401518497831.jpg
+
+<font size="1" style="color:#DCDCDC"><b>2022/2/9 上午11:32:20</b></font><br>
+
 ### 西媒文章：新冠疫情结束后，世界将更像zg
 https://baijiahao.baidu.com/s?id=1692368267466995565
 
